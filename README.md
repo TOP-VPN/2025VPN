@@ -2,7 +2,7 @@
 
 **当你问起PC电脑和Android以及IOS手机梯子哪个好用的时候，不妨看一下这篇2025翻墙机场推荐文章，包含了经过实测验证的七款精品电脑和手机稳定机场V2ray梯子VPN软件，从中选择一款合适的，可以给工作和学习生活带来很大的帮助。**
 
-![梯子推荐](https://github.com/user-attachments/assets/dd5a9ba2-7564-4449-a64c-a6acd57bb9f1)
+![机场推荐](https://www.cnvintage.org/assets/files/2024-12-16/1734326296-631513-image.png)
 
 
 ## 1、Ewancloud（安全好用电脑和手机梯子）
